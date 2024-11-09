@@ -140,3 +140,11 @@ The computational workload continues to increase,
 In Xu Yue's "Records of Numerology", written during the Eastern Han Dynasty,
 There are records of abacus calculation,
 This marks the gradual formation of abacus calculation.
+
+宋朝是我国瓷业繁荣鼎盛时期，宋人注细节、重感受。
+
+宋瓷不仅重视釉色之美，更追求釉的质地之美，其美术风格达到了新的境界，瓷器生产盛况空前。
+
+
+
+The Song Dynasty was a prosperous and flourishing period for China's porcelain industry, where people paid attention to details and emphasized emotions. Song porcelain not only valued the beauty of glaze colour but also pursued the beauty of glaze texture. Its artistic style reached a new level, and the production of porcelain was unprecedented.
