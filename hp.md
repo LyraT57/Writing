@@ -1,9 +1,14 @@
 对公
 Dear Mr. Potter,
+
 We are pleased to inform you that you have been accepted at Hogwarts School of Witchcraft and Wizardry. Please find enclosed a list of all necessary books and equipment.
+
 Term begins on September 1. We await your owl by no later than July 31.
+
 Yours sincerely,
+
 Minerva McGonagall,
+
 Deputy Headmistress
 
 
