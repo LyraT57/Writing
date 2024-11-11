@@ -16,7 +16,7 @@ In contemporary times, the inheritance of Sanlan embroidery is not only a contin
 
 三蓝绣的传承与发展不仅丰富了中国非物质文化遗产，也增强了民族文化自信，促进了文化的多样性与创新性。通过将传统技艺与现代设计相结合，三蓝绣在国际上也得到了认可与传播。
 
-The inheritance and development of Sanlan embroidery not only enriches China's intangible cultural heritage but also enhances national cultural confidence and promotes cultural diversity and innovation. **By combining traditional techniques with modern design, Three Blue Embroidery has also gained recognition and dissemination internationally.**
+The inheritance and development of Sanlan embroidery not only enriches China's intangible cultural heritage but also enhances national cultural confidence and **promotes cultural diversity and innovation. By combining traditional techniques with modern design, Three Blue Embroidery has also gained recognition and dissemination internationally.**
 
 三蓝绣的传承意义不仅仅在于保护和传承这一传统技艺本身，更在于通过这种技艺的传承，弘扬中华优秀传统文化，增强文化自信，推动文化产业发展，丰富人们的精神生活。它不仅是历史的见证，更是现代文化创新的重要源泉。
 
