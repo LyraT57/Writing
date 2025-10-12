@@ -148,3 +148,9 @@ This marks the gradual formation of abacus calculation.
 
 
 The Song Dynasty was a prosperous and flourishing period for China's porcelain industry, where people paid attention to details and emphasized emotions. Song porcelain not only valued the beauty of glaze colour but also pursued the beauty of glaze texture. Its artistic style reached a new level, and the production of porcelain was unprecedented.
+
+皮影戏作为一种传统习俗，具有独特价值。它传承古老故事，展现传统艺术形式，让人们感受古文化的魅力，这有助于维系我们的文化根基。
+Shadow puppet shows, a traditional custom, carry unique value. They pass down old stories, show traditional art forms, and let people feel the charm of ancient culture, which helps keep our cultural roots alive.
+
+最后，皮影戏的传承和弘扬离不开我们每个人的努力。
+Finally, the inheritance and promotion of shadow puppet shows cannot be separated from the efforts of each of us.
