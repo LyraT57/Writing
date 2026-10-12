@@ -154,3 +154,9 @@ Shadow puppet shows, a traditional custom, carry unique value. They pass down ol
 
 最后，皮影戏的传承和弘扬离不开我们每个人的努力。
 Finally, the inheritance and promotion of shadow puppet shows cannot be separated from the efforts of each of us.
+
+As convenient and provocative,AI enables virtual try-on experiences where you can virtually test makeup,hairstyles,clothing,and even cosmetic procedures before making any physical changes.
+例如，凭借其便捷性和启发性，人工智能实现了虚拟试穿体验，你可以在做出任何实际改变之前，虚拟试用化妆品、发型、服装，甚至体验医美项目
+
+Individuals can now experiment with different looks and explore their preferences,potentially expanding the range of beauty ideals.
+如今，人们可以尝试不同的造型，探索自己的偏好，这有可能拓宽人们心中美的范畴
